@@ -74,3 +74,143 @@ The website includes:
 
 You can customize the content, colors, and styling in the respective files.
 
+
+PerleMama Lactation
+
+Annette Nel, LC
+
+How can I help?
+
+VIDEO SESSION
+
+60mins via videocall. We discuss your challenges and create a doable plan to achieve your goals. Includes a feeding observation, relevant written, graphic and video resources to further assist you, your session notes and care plan, and a text based follow up.
+
+COME TO ME…
+
+60 – 80mins at my Home & office in Stellenbosch. We discuss your challenges and create a doable plan to achieve your goals. Includes a feeding observation and guided oral assessment, practical demonstrations, relevant written, graphic and video resources to further assist you, your session notes and care plan, and a text based follow up.
+
+OR I COME TO YOU!
+
+60 – 90mins at your home or hospital. We discuss your challenges and create a doable plan to achieve your goals. Includes a feeding observation and oral assessment, practical demonstrations, relevant written, graphic and video resources to further assist you, your session notes and care plan, and a text based follow up.
+
+Travel rates apply past 10km of Stellenbosch at R3.25/km
+
+
+
+Got it 👍 I’ll transcribe the text from this image and break it into clear sections, with **each reviewer’s name at the top**, exactly as requested. (I’ll keep the original wording and language.)
+
+---
+
+### **Elrike Neels**
+
+*recommends PerleMama Lactation*
+**12 Mar 2024**
+
+Annette gave me great advice regarding breastfeeding, storing expressed milk and buying the correct breast pump to suit my needs. She provided feedback on my questions quite quickly. She is friendly and very informative on the topic of breastfeeding.
+
+---
+
+### **Cerisha Singh**
+
+*recommends PerleMama Lactation*
+**4 Oct 2024**
+
+I can not recommend Annette enough. Her bubbly nature makes the consult so comfortable and she is so professional and supportive. She has helped me through teething and pumping and even went out of her way to put me in touch with another mum to help trouble shoot my pump. A sincere Thank you to you Annette for the support and reassurance and empathy that you showed me. love and light to you always.
+
+---
+
+### **Joanita Welgemoed**
+
+*recommends PerleMama Lactation*
+**14 Jan 2025**
+
+Ek wens ek het Annette vroeër geken!
+ek is nie een dag spyt dat ek in kontak gekom het met haar nie.
+
+Ek is n FTM, sy het al my onsekerheid in my kop, goed wat vir my gesê was van ander wat n mamma se kop kan smokkel en voel jy doen dalk nie genoeg vir n borsvoed baba nie.
+
+Ek sal haar enigtyd aanbeveel vir enige iemand wat raad soek.
+
+Sy het my al gehelp met alle vrae van borsvoed en reassurance gegee.
+
+My gehelp met baba se BLW oor hoe ek moet begin en tips wat sy gee.
+
+Ek sms haar nou nog oor goed wat ek onseker is oor.
+
+Haar diens en passie vir borsvoed! passie vir Mammas help wys en straal deur haar! sy laat mens bieers ongemaklik voel nie. mens gesels so lekker asof mens mekaar al vir jare ken.
+
+Dankie vir jou Raad en omgee.
+Sonder jou sou ek al lankal opgehou borsvoed het.
+
+---
+
+### **(Reviewer name not visible – long review)**
+
+I honestly don’t know what I would have done without Annette on our breastfeeding journey.
+
+Since my baby was 2 months old, we were in constant distress – crying 24/7, nappies that changed colours within the same day, bloody diapers, slimy diapers, even foamy diapers – and absolutely no one could tell me what was wrong. We saw multiple doctors here in Namibia, but we left every appointment with more questions than answers.
+
+Then I found Annette, and from the very first call, I finally felt heard. We had three calls where she supported me with so much care, patience, and knowledge. She walked this overwhelming road with me, suggesting different things to try. On the third call, she recommended we cut all potential allergens (something no one else had even considered) and that completely changed everything.
+
+Within a month, we saw the difference. His diapers improved, he looked like he wasn’t in constant pain anymore, and best of all, he finally cried less. The relief and gratitude I felt are impossible to describe. She figured out what no other doctor could, and I will forever be thankful for that.
+
+But her support didn’t stop there. She also helped me when my baby started biting during feeds, and again before he turned one, guiding me on what to expect and how to handle new challenges. She never stops reading, researching, and going the extra mile to help moms like me, her dedication is unmatched.
+
+---
+
+### **Elizma Pretorius**
+
+*recommends PerleMama Lactation*
+**2 Jul 2023**
+
+Ek kan nie genoeg dankie sê vir Annette se hulp nie.
+Die dag wat ek besluit het om op te gee met borsvoed was dieselfde dag wat ek besluit het om haar te kontak. Van die eerste interaksie af het alles net elke dag beter gegaan. Sy bied konstante ondersteuning met ongelooflike passie vir dit wat sy doen. Ek sou nie hierdie sonder haar kon doen nie. Sy is verseker my eerste oproep as ek raad nodig het!
+
+---
+
+### **Karlien Niemann**
+
+*recommends PerleMama Lactation*
+**5d**
+
+Ek wil net vir jou verskriklik baie dankie sê vir al jou hulp tot dusver! Ek sou dit nie gemaak het sonder jou nie! Boetie drink officially langer as wat sy sussie kon voed! Ons sukkel nog so af en toe maar ons kan dit darm manage! Ek het nooit gedink ek sal my tweede kan langer borsvoed as my eerste! Dis wel nog net n paar dae maar gaan nie opgee nie!!
+
+Jou hulp beteken so baie ek kan dit nie in woorde sit nie!! ❤️🥹
+
+---
+
+### **João Marcelo Silva**
+
+*recommends PerleMama Lactation*
+**4 Jun 2024**
+
+After dealing with a fever in my second week due to mastitis, Annette helped to demystify breastfeeding for me! Since then I have been able to avoid unnecessary complications. I’m grateful to have learned how natural and simple breastfeeding can be (including how and when to pump, as well as quality products to use, etc). I absolutely recommend! ❤️
+Natalie
+
+---
+
+### **Lulu Fourie**
+
+*recommends PerleMama Lactation*
+**15 May 2024**
+
+Annette was extremely helpful with getting my baby to latch after being used to nipple shields. She was very patient and spent a lot of time with me. She also gave me the support I needed when I needed it most via whatsapp. I would most definitely recommend her services.
+
+---
+
+### **Chanel Rossouw**
+
+*recommends PerleMama Lactation*
+**15 Jan 2025**
+
+I can’t thank Annette Nel enough for all the support she’s provided during my breastfeeding journey! From helping me get a proper latching with different positions to guiding me in the right direction with reflux issues, Annette has been an absolute lifesaver. She patiently worked with me on managing diaper troubles and even helped me adjust my diet to ensure it was best for my baby.
+
+Her expertise, kindness, and dedication made such a difference, and I always felt like I had a trusted LC in my corner. If you’re looking for a knowledgeable, compassionate, and thorough lactation consultant, I highly recommend Annette—she truly goes above and beyond!
+
+---
+
+If you want, I can also:
+
+* shorten these for **Instagram testimonials**
+* clean them up for a **website testimonials page**
+* or pull out **highlight quotes** for marketing 💛
