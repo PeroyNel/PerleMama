@@ -326,3 +326,30 @@ Annette was extremely helpful with getting my baby to latch after being used to 
 I can’t thank Annette Nel enough for all the support she’s provided during my breastfeeding journey! From helping me get a proper latching with different positions to guiding me in the right direction with reflux issues, Annette has been an absolute lifesaver. She patiently worked with me on managing diaper troubles and even helped me adjust my diet to ensure it was best for my baby.
 
 Her expertise, kindness, and dedication made such a difference, and I always felt like I had a trusted LC in my corner. If you’re looking for a knowledgeable, compassionate, and thorough lactation consultant, I highly recommend Annette—she truly goes above and beyond!
+
+
+Hey, I'm Annette!
+
+“I am a mother of two and hopefully more to come!
+
+As much as I love breastfeeding, I'm a bit obsessed with pregnancy and the life-changing journey of physiological birth.”
+
+“I believe every woman can have a redemptive birth experience if the system failed her. We live in a time where women’s trust in their bodies and inherent mothering abilities are at an all time low. We can fix that!”
+
+“I dream of every mother being able to breastfeed in comfort and with confidence, and eliminating the barriers to successful infant feeding through information and advocacy for the motherbaby dyad.”
+
+“I am a homebirther and have experienced the joy of an unassisted birth, and support the right of women to make their own informed decisions regarding their pregnancy, birth and breastfeeding journey. 
+
+---
+
+PerleMama
+Annette Nel, LC (CBI)
+
+“I obtained my Lactation Counselor (LC, CBI) certification by completing both education and counseling hours, as well as education in ethics, communication skills and occupational safety and security. 
+
+As well as being a committee member and Media Manager of LACSA (Lactation Consultants of Southern Africa) I also participate in various volunteer oriented groups, including helping facilitate the Breasties Breastfeeding Support Group on Facebook, a large volunteer run group providing mothers with evidence based lactation info and support.
+
+“I have a special interest in infant reflux, allergy management, fertility during breastfeeding, gentle and respectful weaning, and ecological breastfeeding.”
+
+
+
