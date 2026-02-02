@@ -160,6 +160,16 @@
   text-shadow: 0 1px 3px rgba(255, 255, 255, 0.5);
 }
 
+.section-title-2 {
+  font-family: 'Tan Pearl', 'Playfair Display', Georgia, serif;
+  font-size: 1.5rem;
+  font-weight: 700;
+  color: #333;
+  text-align: center;
+  margin-bottom: 3rem;
+  text-shadow: 0 1px 3px rgba(255, 255, 255, 0.5);
+}
+
 .services-grid {
   display: grid;
   grid-template-columns: repeat(auto-fit, minmax(300px, 1fr));
@@ -298,9 +308,9 @@
 }
 
 .about-subtitle {
-  font-family: 'Tan Pearl', 'Playfair Display', Georgia, serif;
-  font-size: 2rem;
-  font-weight: 700;
+  font-family: 'Moontime', 'Playfair Display', Georgia, serif;
+  font-size: 5rem;
+  font-weight: 500;
   color: #333;
   margin-bottom: 1.5rem;
   text-shadow: 0 1px 3px rgba(255, 255, 255, 0.5);
@@ -767,6 +777,7 @@
   }
 
   .about-subtitle {
+    font-family: 'Moontime' !important;
     font-size: 1.5rem;
   }
 
