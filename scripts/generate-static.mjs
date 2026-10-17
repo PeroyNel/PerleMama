@@ -129,6 +129,8 @@ function buildHead(page) {
 <meta name="viewport" content="width=device-width, initial-scale=1.0" />
 <title>${escapeHtml(page.title)}</title>
 <meta name="description" content="${escapeHtml(page.description)}" />
+<link rel="icon" type="image/jpeg" href="/images/logo.jpg" />
+<link rel="apple-touch-icon" href="/images/logo.jpg" />
 <link rel="canonical" href="${url}" />
 <link rel="alternate" hreflang="${lang}" href="${url}" />
 <link rel="alternate" hreflang="${altLang}" href="${alt}" />
