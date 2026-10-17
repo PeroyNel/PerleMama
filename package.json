@@ -5,8 +5,9 @@
   "type": "module",
   "scripts": {
     "dev": "vite",
-    "build": "vite build && node -e \"import('node:fs').then(fs => fs.copyFileSync('dist/index.html','dist/404.html'))\"",
-    "preview": "vite preview"
+    "build": "vite build && node scripts/generate-static.mjs",
+    "preview": "vite preview",
+    "generate-static": "node scripts/generate-static.mjs"
   },
   "dependencies": {
     "react": "^18.2.0",

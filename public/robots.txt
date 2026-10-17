@@ -1,0 +1,4 @@
+User-agent: *
+Allow: /
+
+Sitemap: https://perlemamalactation.co.za/sitemap.xml
